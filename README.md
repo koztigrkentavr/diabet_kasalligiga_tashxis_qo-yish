@@ -1,0 +1,1 @@
+# diabet_kasalligiga_tashxis_qo-yish
